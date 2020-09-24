@@ -3,4 +3,4 @@ bonus page
 -Supatida Upan
 -631310039
 -สุภธิดา อุปัญญ์
-![Google ](https://www.google.co.th/images/branding/googlelogo/2x/googlelogo_color_272x92dp.png)
+![BG](https://image.freepik.com/free-vector/variety-cute-shapes-abstract-background_23-2148544989.jpg)
